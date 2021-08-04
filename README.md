@@ -1,1 +1,1 @@
-# SquareiTechnologies
+# Squarei Technologies
